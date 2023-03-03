@@ -24,4 +24,4 @@ I am interested in joining multidisciplinary teams focused on innovation and con
  ### 📫 You can find me on:
 
 
-[Linkedin]([linkurl](https://www.linkedin.com/in/haboufaker/))
+[Linkedin](https://www.linkedin.com/in/haboufaker/)
