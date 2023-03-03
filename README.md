@@ -21,7 +21,7 @@ I am interested in joining multidisciplinary teams focused on innovation and con
 - QA
 - Jira
 
-📫 ###you can find me on:
+ ### 📫 You can find me on:
 
 
 [Linkedin]([linkurl](https://www.linkedin.com/in/haboufaker/))
